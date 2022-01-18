@@ -1,3 +1,3 @@
-# 好烦啊 什么时候中国能放松疫情管控啊 为什么不能像英美那样放松一点呢 真的脑残
+# When will China relax its control of the epidemic? Why not relax a little like the US and UK  
 
-好烦啊 什么时候中国能放松疫情管控啊 为什么不能像英美那样放松一点呢 真的脑残
+When will China relax its control of the epidemic? Why not relax a little like the US and UK  
